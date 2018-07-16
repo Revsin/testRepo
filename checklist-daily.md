@@ -1,2 +1,2 @@
-Faire les courses
+Faire les courses au supermarché
 Faire le ménage
